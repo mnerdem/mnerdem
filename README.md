@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mnerdem
+- 👀 I’m interested in learning new things, and this is all new for me.
+- 🌱 I’m currently learning Blender and Unity.
+- 📫 How to reach me : mervenurerdem@hotmail.com
